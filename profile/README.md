@@ -38,6 +38,4 @@ _We are **LZOIers**. Let's be together!_
 
 本组织仅对路桥中学 OIer 开放
 
-加 QQ: **1423572958**
-
 #### 本页解释权归 路桥中学 所有
